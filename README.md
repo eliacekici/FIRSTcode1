@@ -1,2 +1,4 @@
 # FIRSTcode1
-first code 
+code 
+
+ndryshimi im
